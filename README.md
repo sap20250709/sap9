@@ -10,4 +10,4 @@
 
 <p>本页面精选各类国产与日韩三级电影资源，涵盖麻豆官方入口、蜜桃专区及高清无码影片。支持一键直达，免注册免跳转，手机电脑均可流畅播放，是深夜看片的不二选择。</p>
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/sap20250709/sap9 ）</span>
